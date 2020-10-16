@@ -5,3 +5,6 @@ Seinen acht engagierten Verbrecher-Kollegen trägt er auf, keine zu engen Bezieh
 * Berlin ist sein Bruder
 * Verliebt sich in die leitende Inspektora
 * Hat die Idee zum Überfall von seinem Vater
+
+
+> Waffenruhe kann das Allerwichtigste in einem Krieg sein.
